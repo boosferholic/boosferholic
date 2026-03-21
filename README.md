@@ -8,3 +8,4 @@
 ⠀
 ![Image](https://media.tenor.com/jlQP6FxcDGAAAAAi/hearts-rainbow.gif)
 [sign my ata](https://spokeismagical.atabook.org/)
+[strawpage](https://mimiikooo.straw.page)
