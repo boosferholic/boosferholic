@@ -8,6 +8,7 @@
 ![Image](https://media.tenor.com/jlQP6FxcDGAAAAAi/hearts-rainbow.gif)
 
 [sign my ata](https://spokeismagical.atabook.org/)
-[strawpage](https://mimiikooo.straw.page)
+  ㅤ♡  ㅤ
+[strawpage](https://taxduoflavoured.straw.page)
 
 $\text{\color{#e0deff} send gimmicks on strawpage (✿◠ᴗ◠) }$
