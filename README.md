@@ -1,5 +1,8 @@
 
 ![Image](booosferrrrrr_20260502210843.png)⠀<div align="center">
+
+$\text{\color{#a2c79d} hi hello (✿◠ᴗ◠) }$
+
 [sign my ata](https://spokeismagical.atabook.org/)
  𓏵 
 [strawpage](https://taxduoflavoured.straw.page)<div align="center">⠀
@@ -8,4 +11,3 @@
 ![Image](booosferrrrr_20260502204143.png)
 ⠀
 
-$\text{\color{#a2c79d} hi (✿◠ᴗ◠) }$
