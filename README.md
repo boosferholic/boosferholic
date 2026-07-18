@@ -1,1 +1,1 @@
-hi so can some of yall stop being weird about me my partner does NOT play pt at all stop asking randos if they're my partner stop digging for info ! removed my actual bio for a while because this got to a point ok
+hi so can some of yall stop being weird about me and stop trying to get info about me ESPECIALLY abt my partner thank u my partner never plays pt stop asking people of they're my partner ok this got to a point i had to put this here
