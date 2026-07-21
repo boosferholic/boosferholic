@@ -1,1 +1,1 @@
-hi so can some of yall stop being weird about me and stop trying to get info about me ESPECIALLY abt my partner thank u my partner never plays pt stop asking people if they're my partner ok this got to a point i had to put this here
+wip again @_@
