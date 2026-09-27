@@ -1,38 +1,38 @@
-wip
-<img width="640" src="https://i.postimg.cc/rFQZJ0Dj/greenstars-20260912150138.png" alt="dividerrrr" align="right" width="600"/></p>
+
+<img width="640" src="https://i.postimg.cc/zGSHmhbc/bodidveor-20260927152007.png" alt="dividerrrr" align="right" width="600"/></p>
 
 
 
 
 
-<img width="400" src="https://i.postimg.cc/XJjQdnV7/boosfer67653-20260912152410.png" alt="boosfer" align="left" width="300"/></p>
+<img width="400" src="https://i.postimg.cc/3rtzrfpv/boosfer67653-20260927134650.png" alt="boosfer" align="left" width="300"/></p>
 
 
 
 
-${\textsf{\color{#485749} ♡}}$ 
+${\textsf{\color{#185600} ♡}}$ 
 ⠀ ⠀ ⠀ ⠀ ⠀
 
-<p align="center">${\textsf{\color{#485749} ⭒}}$ 
+<p align="center">${\textsf{\color{#185600} ⭒}}$ 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
-${\color{#224E2D}{\textsf ☆⌒(＞。≪)}} \color{#325F33}{\textsf{uzay}} \color{#44653E}{\textsf{or}}  \color{#566D32}{\textsf{miko}}$
+${\color{#00FFFF}{\textsf ☆⌒(＞。≪)}} \color{#00F472}{\textsf{uzay}} \color{#00FF00}{\textsf{or}}  \color{#65FF00}{\textsf{miko}}$
 <br/>
 
-${\color{#1E4E28}{\textsf he⟡any}} \color{#36532C}{\textsf{　꒱　}} \color{#43662A}{\textsf{eng / tr}}  \color{#42602C}{\textsf{-14 dni}}$
+${\color{#00FF00}{\textsf he⟡any}} \color{#61FF00}{\textsf{　꒱　}} \color{#8CFF00}{\textsf{eng / tr}}  \color{#DDFF00}{\textsf{-14 dni}}$
 <br/>
 
-<p align="center">${\textsf{\color{#414047} —}}$ 
+<p align="center">${\textsf{\color{#025600} —}}$ 
 
-${\color{#295B31}{\textsf c + h}} \color{#396334}{\textsf{and}} \color{#4C6931}{\textsf{interact}}  \color{#527835}{\textsf{freely}}$
+${\color{#00DE42}{\textsf c + h}} \color{#00FB25}{\textsf{and}} \color{#81EC00}{\textsf{interact}}  \color{#94E400}{\textsf{freely}}$
 <br/>
-${\color{#25622C}{\textsf unless}} \color{#30612A}{\textsf{stated}} \color{#40663C}{\textsf{otherwise}}   \color{#51704F}{\textsf{(✿˃ ᗜ ˂˵)}}$
-<p align="center">${\textsf{\color{#414047} —}}$ 
-
+${\color{#00DD00}{\textsf unless}} \color{#00F06C}{\textsf{stated}} \color{#10F693}{\textsf{otherwise}}   \color{#00FFCB}{\textsf{(✿˃ ᗜ ˂˵)}}$
+<p align="center">${\textsf{\color{#025600} —}}$ 
+ 
 <details>
- <summary> $${\color{#757B6C}thank \space you \space ♡}$$</summary>
+ <summary> $${\color{#FFFFFF}thank \space you \space ♡}$$</summary>
 
 <sub>[pt hall of media](https://github.com/pt-hall-of-media)</sub>
 <sub>[pony town walk of fame](https://github.com/pt-walk-of-fame)</sub>
@@ -40,8 +40,10 @@ ${\color{#25622C}{\textsf unless}} \color{#30612A}{\textsf{stated}} \color{#
 
 </details>
 
-[新book](https://boosferholic.atabook.org/) ${\textsf{\color{#485749} ♡}}$
-[straw](https://bossfer.straw.page) ${\textsf{\color{#485749} ♡}}$
+[新book](https://boosferholic.atabook.org/) ${\textsf{\color{#E1FF00} ♡}}$
+[straw](https://bossfer.straw.page) ${\textsf{\color{#E1FF00} ♡}}$
 [prns.cc](https://pronouns.cc/@boosferholic)
+
+<img width="640" src="https://i.postimg.cc/zGSHmhbc/bodidveor-20260927152007.png" alt="dividerrrr" align="right" width="600"/></p>
 
 
