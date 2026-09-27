@@ -40,6 +40,9 @@ ${\color{#00DD00}{\textsf unless}} \color{#00F06C}{\textsf{stated}} \color{#
 
 </details>
 
+
+ 　
+
 [新book](https://boosferholic.atabook.org/) ${\textsf{\color{#E1FF00} ♡}}$
 [straw](https://bossfer.straw.page) ${\textsf{\color{#E1FF00} ♡}}$
 [prns.cc](https://pronouns.cc/@boosferholic)
