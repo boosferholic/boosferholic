@@ -1,5 +1,5 @@
 
-<img width="640" src="https://i.postimg.cc/zGSHmhbc/bodidveor-20260927152007.png" alt="dividerrrr" align="right" width="600"/></p>
+<img width="640" src="https://i.postimg.cc/9M4k0Z9j/bodidveor-20260927153820.png" alt="dividerrrr" align="right" width="600"/></p>
 
 
 
@@ -44,6 +44,6 @@ ${\color{#00DD00}{\textsf unless}} \color{#00F06C}{\textsf{stated}} \color{#
 [straw](https://bossfer.straw.page) ${\textsf{\color{#E1FF00} ♡}}$
 [prns.cc](https://pronouns.cc/@boosferholic)
 
-<img width="640" src="https://i.postimg.cc/zGSHmhbc/bodidveor-20260927152007.png" alt="dividerrrr" align="right" width="600"/></p>
+<img width="640" src="https://i.postimg.cc/9M4k0Z9j/bodidveor-20260927153820.png" alt="dividerrrr" align="right" width="600"/></p>
 
 
